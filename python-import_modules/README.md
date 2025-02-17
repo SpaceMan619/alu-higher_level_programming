@@ -1,0 +1,2 @@
+READ ME BECAUSE I TOTALLY AM GOING TO BE READ BY EVERYONE.
+this course tiring fr fr
